@@ -5,3 +5,4 @@
 
 - [austinwehrwein.com](https://austinwehrwein.com/)
 - [Linkedin](https://www.linkedin.com/in/jaustinwehrwein/)
+- [Twitter](https://www.twitter.com/awhstin/)
