@@ -1,6 +1,6 @@
 ### Hi there I'm Austin :wave:
 
-👨‍💻 A.D. Information Strategy @LurieChildrensFoundation  
+👨‍💻 Director, Information Strategy @LurieChildrensFoundation  
 👨‍🎓 University of Nebraska alumni  
 
 - [austinwehrwein.com](https://austinwehrwein.com/)
